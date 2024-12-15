@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **Destek@beratarikan.com.tr**
 
-- 📄 Know about my experiences [https://cv.beratarikan.com.tr/](https://cv.beratarikan.com.tr/)
+- 📄 Know about my experiences 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
